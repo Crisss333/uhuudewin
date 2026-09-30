@@ -7,6 +7,3 @@ akjhsdjklajsdkljakls
 
 
 aksdjlkas
-pico pal que lee
-
-el criss se la come 
